@@ -1,2 +1,2 @@
 # Synapse-X-Source-Update
-no fuck you
+synapse x source updated by me
